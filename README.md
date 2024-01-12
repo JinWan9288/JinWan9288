@@ -2,7 +2,7 @@
 - 👀 I’m interested in something maybe
 - 🌱 I’m currently learning postgraduate studies
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 33721828@qq.com
+- 📫 How to reach me 3372182845@qq.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: contact me, please
 
